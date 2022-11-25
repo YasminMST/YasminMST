@@ -1,0 +1,6 @@
+- 👋 Hi, I'm @YasminMST, I chose this name because in Portuguese it means "Yasmin = Girl without land", and i'm brazilian.
+- 👀 I am interested in arts, programming and writing. Maybe I'll publish a book one day.
+- 🌱 I'm currently learning the art of programming, I paint a lot too and for now... learning English.
+- 💞️ I try to collaborate with what I know, if they ask and I know the answer I help, and even if I don't know I research and help too.
+- 📫 If you want to get in touch with me, it's very simple: send me a message on my instagram @Lany_Blackberry_06, introduce yourself and we can talk!
+- I just forgot to say my age; I'm 16 years old (Libra is my sign)
